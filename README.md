@@ -1,9 +1,13 @@
 OII, sejam bem vindas bebelas!!
 
 sou apaixonada em estudos 📚​
+
 meu sonho é ser advogada ⚖️​
+
 gosto de viajar ✈️
-gosto do campo ​🌾​
+
+gosto do campo ​🌾
+​
 gosto de sair com os friends ​🫂​
 
 ESSA SOU EU!!! ​​🎀​​
